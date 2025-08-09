@@ -1,2 +1,2 @@
 Если не будет интернета или проблемы с сервером то
-!(https://ibb.co/5XyFHFTK)
+(https://ibb.co/5XyFHFTK)
